@@ -1,5 +1,5 @@
 # On Being a Mentor #
-Author: [Doug Bradbury](https://www.linkedin.com/in/bradbury02/)
+_Author: [Doug Bradbury](https://www.linkedin.com/in/bradbury02/)_
 
 ## You are not a teacher ##
 
